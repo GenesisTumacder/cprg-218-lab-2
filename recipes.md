@@ -18,7 +18,7 @@ Ingredients:
 - 1 package (10 oz) frozen chopped spinach, thawed and drained
 - 1 cup mayonnaise
 - 1 cup grated Parmesan cheese
-- 1/2 cup shredded mozzarella cheese
+- 8 cups shredded mozzarella cheese
 - 2 cloves garlic, minced
 
 Instructions:
